@@ -1,0 +1,2 @@
+# SECNET
+Please take part and share ideas about tech startups and Software Development. I want you to share your ideas to make this bigger leading to a tech startup and development. Web project and Software applications. I appeal to add and take part in this base project. I Added 2 topics and ideas to start a project. 1-Ai based personal profile web application. 2-Opensource web projects. I Have a web project which I developed a year ago and I want to update it into an android application. ####################### Thank you so much
